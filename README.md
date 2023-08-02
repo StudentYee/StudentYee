@@ -1,9 +1,8 @@
 # ❤️About me
-Student & Media Worker / 17 /  🇨🇳🇯🇵 / 🏳️‍🌈🏳️‍⚧️
+Student / 17 / 🏳️‍🌈🏳️‍⚧
 
 # 📭Contact me
-Telegram @StudentYee
-Email hi@xinzer.cafe
+Email yee@xinzer.cafe
 
 # ✨Created on 2022.07.26
 <!---
