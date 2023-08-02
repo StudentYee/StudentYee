@@ -1,5 +1,5 @@
 # ❤️About me
-Student / 17 / 🏳️‍🌈🏳️‍⚧
+Student / 17 / 🏳️‍🌈
 
 # 📭Contact me
 Email yee@xinzer.cafe
